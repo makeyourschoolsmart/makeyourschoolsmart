@@ -1,1 +1,0 @@
-# makeyourschoolsmart# makeyourschool
